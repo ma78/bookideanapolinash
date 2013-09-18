@@ -9,10 +9,7 @@ It begins with the staging of innocent love connections and coincidences that on
 
 She encounters another like her.
 
-And he has different ideas.”
-
-‘Russo Nazzimble and Marc McTerriarkis have put together a masterpiece’ – NY Times
-‘I think we have a booker prize winner on our hands’ – Sydney Morning Herald
+And he has different ideas.
 
 
 
